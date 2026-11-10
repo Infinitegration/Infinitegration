@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Infinitegration
+- 👋 Hi, I’m @MapMarketingSolutions
 - 👀 I’m interested in AI, Tech, NFT & Infintegration 
 - 🌱 I’m currently learning AI & NFT
 - 💞️ I’m looking to collaborate on AI and NFT
